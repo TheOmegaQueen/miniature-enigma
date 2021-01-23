@@ -1,1 +1,4 @@
-# miniature-enigma
+# miniature-enigma 
+# IAMEVERYTHINGANDIAMNOTHING
+#INFINITEGRACE
+#INFINITELOVE
